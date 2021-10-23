@@ -1,0 +1,7 @@
+Ordenanza Nº2384/2021
+Ordenanza Nº 2384/2021
+General Alvear, 21/09/2021
+No posee
+ORDENANZA
+Expediente Nº 4039-15536/2021
+ORDENANZA Nº 2384/2021
