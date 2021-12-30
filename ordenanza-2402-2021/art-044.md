@@ -1,0 +1,18 @@
+Artículo 44°: De acuerdo a lo establecido en el CAPÍTULO XVIII, del Libro Segundo de la Ordenanza Fiscal, fíjanse para los servicios que se detallan los siguientes importes:
+EQUIPOS:
+Por trabajos de reparación, conservación y/o construcción de caminos y terraplenes, con máquinas y personal municipal en predios rurales y sub-rurales de particulares en el partido, se cobrará por hora de trabajo:
+Motoniveladoras………………………………..….. 80 lts. Gasoil la hora
+Niveladora de arrastre…………………………….80 lts. Gasoil la hora
+Retroexcavadora……..……………………………120 lts. Gasoil la hora
+Retropala excavadora chica………………...…….80 lts. Gasoil la hora
+Retroexcavadora Poclain……………………….120 lts. Gasoil la hora
+Cargadores Frontales (Case)……………...........90 lts. Gasoil la hora
+Camiones (Viajes de tierra, hasta 5 Km.)………50 lts. Gasoil la hora
+Regador……………………………………...... 25 lts. Gasoil la hora
+Por kilómetro recorrido para el traslado hasta el lugar de trabajo (carretón)………………...……...……… 1,5 lts. Gasoil por km. recorrido.
+Venta de tierras ( 5 a 6 m3)….…...…………$ 2.250,00 por cada viaje
+11 - Costo del acarreo de vehículos retenidos en controles de Agentes de Tránsito dentro de la planta urbana………………………30 lts. Gasoil
+12- Costo del acarreo de vehículos retenidos en controles de Agentes de Tránsito dentro del partido ……………30 lts. Gasoil + 1 lts. por km. recorrido
+PODRAN SOLICITAR EL SERVICIO Y SERAN RESPONSABLES DEL PAGO:
+a)- Arrendatarios. b)- Propietarios. c) Poseedores a Título de Dueño.
+LAS MAQUINARIAS VIALES NO PODRAN SALIR DEL PARTIDO DE GENERAL ALVEAR, SALVO AUTORIZACION EXPRESA DEL DEPARTAMENTO EJECUTIVO MUNICIPAL.
