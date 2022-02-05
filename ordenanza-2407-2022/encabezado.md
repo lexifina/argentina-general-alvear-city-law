@@ -1,0 +1,6 @@
+Ordenanza Nº2407/2021
+Ordenanza Nº 2407/2021
+General Alvear, 06/12/2021
+ORDENANZA
+Corresponde Expediente 4039-15672/2021
+ORDENANZA 2407/2021
