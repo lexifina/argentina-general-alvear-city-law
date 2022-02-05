@@ -1,0 +1,1 @@
+Artículo 4º: Por la prestación de los servicios de recolección de residuos, barrido, riego, conservación y ornato de calles, plazas, paseos, espacios verdes públicos, de uso comunitario; tratamiento y reciclado de residuos en planta, se abonara la siguiente Tasa por inmueble Urbano comprendido dentro de la Zonas determinadas en el articulado de esta misma Ordenanza.

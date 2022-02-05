@@ -1,0 +1,11 @@
+Artículo 17°: De acuerdo a lo establecido en el Capítulo VI, del Libro Segundo de la Ordenanza Fiscal, fíjanse los siguientes importes:
+1 - BANDERAS:
+Por cada bandera anunciadora de remate, (Por día) ------------------$ 1.410,00
+2 - VOLANTES Y AFICHES:
+a) - Por día de distribución -----------------------------------------------------$ 608,00
+3 - ANUNCIOS PORTATILES:
+- Por anuncios colocados en vehículos destinados a la publicidad (por día ) ------------------------------------------------------------------------------$ 285,00
+4 -PUBLICIDAD ORAL:
+EN VEHICULOS: Por Altavoces: (Por Día) -------------------------$ 1.155,00
+CAPÍTULO VII
+DERECHOS POR VENTA AMBULANTE
