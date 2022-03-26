@@ -1,0 +1,6 @@
+Ordenanza Nº2415/2022
+Ordenanza Nº 2415/2022
+General Alvear, 03/02/2022
+ORDENANZA
+Expediente 4039-15728/2022
+ORDENANZA Nº 2415/2022
