@@ -1,0 +1,5 @@
+Ordenanza Nº2451/2022
+Ordenanza Nº 2451/2022
+General Alvear, 18/07/2022
+ORDENANZA
+ORDENANZA Nº 2451/2022
