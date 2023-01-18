@@ -1,0 +1,6 @@
+Ordenanza Nº2476
+Ordenanza Nº 2476
+General Alvear, 24/11/2022
+ORDENANZA
+Corresponde Expediente 4039-16107/2022.
+ORDENANZA DEFINITIVA Nº 2476/2022
