@@ -1,0 +1,6 @@
+Ordenanza Nº2492
+Ordenanza Nº 2492
+General Alvear, 19/12/2022
+ORDENANZA
+orresponde Expediente Nº: 4039-16142/2022.
+ORDENANZA IMPOSITIVA DEFINITIVA Nº 2492/2022
