@@ -1,0 +1,1 @@
+Artículo 51°: Quedan derogadas todas las disposiciones de carácter tributario sancionadas por Ordenanza particular del Municipio, con exclusión de aquellas referidas a Contribución de Mejoras, siendo de aplicación la presente Ordenanza Impositiva.

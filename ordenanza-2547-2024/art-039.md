@@ -1,0 +1,1 @@
+Artículo 39°: El Departamento Ejecutivo podrá celebrar con Institutos, Entidades Profesionales y/o Entidades Mutuales, convenios para la prestación de servicios asistenciales en el Hospital Municipal “Dr. Bernardino Rivadavia”, aplicando las tarifas que establezca el mencionado nomenclador (Ley 1891 y sus modificatorias).
