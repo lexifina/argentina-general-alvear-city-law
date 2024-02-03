@@ -1,0 +1,4 @@
+Artículo 41°: La internación y pensión en el Hogar de Ancianos Municipal de Gral. Alvear se cobrará de conformidad a los siguientes apartados:
+Residentes con jubilación o pensión, con residencia y asistencia médica dentro del hogar, por mes abonará de sus ingresos el 80% (ochenta por ciento).
+Residentes en Hogar de Día con las mismas condiciones que los anteriores sin pernoctar, 50% (cincuenta por ciento) de sus ingresos.
+Residentes sin jubilación o pensión pero con situación económica (propia o de sus familiares directos y obligados legalmente) que les permita afrontar los gastos de internación a criterio de la evaluación socio-económica realizada por el área de servicios social, con residencia y asistencia médica, se cobrará el 70% (setenta por ciento) mensual del valor establecido por P.A.M.I. para cada uno de sus afiliados.
