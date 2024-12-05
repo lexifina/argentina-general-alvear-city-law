@@ -1,0 +1,6 @@
+Ordenanza Nº2593/2024
+Ordenanza Nº 2593/2024
+General Alvear, 10/09/2024
+ORDENANZA
+ORDENANZA Nº 2593/2024 - ORDENANZA DECLARADA NULA POR ORDENANZA Nº 2594/2024.-
+Corresponde Proyecto Bloque UCR-Juntos
