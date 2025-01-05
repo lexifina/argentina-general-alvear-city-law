@@ -1,0 +1,1 @@
+Artículo38°: De acuerdo a lo establecido en el CAPÍTULOXVII, del Libro Segundo de la Ordenanza Fiscal, fíjanse para los servicios asistenciales prestados en el Hospital Municipal “Dr. Bernardino Rivadavia” los importes determinados en el nomenclador IOMA.

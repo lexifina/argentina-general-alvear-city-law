@@ -1,0 +1,1 @@
+Artículo 32º: Todos aquellos contribuyentes que a partir de la vigencia de la presente ordenanza Impositiva no registren deuda alguna y abonen su tributo en término, gozarán de una quita del DIEZ (10 %) POR CIENTO.
