@@ -1,0 +1,1 @@
+Artículo 2°: El Jardín Maternal “MIS PRIMEROS PASOS” llevará adelante sus actividades en las instalaciones que el DEM establezca a sus efectos de acuerdo a las necesidades del Distrito según la localización de la población infantil a atender.
