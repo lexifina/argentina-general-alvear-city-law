@@ -1,0 +1,1 @@
+Artículo 15°: Todos los comercios que procedan a su cierre deberán presentar en la oficina de Inspección General y Control Urbano una constancia de libre de deuda de TISSH emitida en la oficina de Recaudación y la certificación de cese en la actividad en los impuestos provinciales.
