@@ -1,0 +1,6 @@
+Ordenanza Nº2705/2026
+Ordenanza Nº 2705/2026
+General Alvear, 23/09/2026
+ORDENANZA
+Expediente Nº: 4039-17646/2026
+ORDENANZA 2705/2026
